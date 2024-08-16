@@ -1,1 +1,1 @@
-# dekopinda-kepulauan-mentawai
+# dekopinda-karanganyar
